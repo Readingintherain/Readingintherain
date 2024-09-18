@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Readingintherain
 - 👀 I’m interested in writing, reading, drawing, musical theatre, and swimming!
-- 🌱 I’m currently learning computer science, the nuances of film grammar, and the last bit of blocking for Freaky Friday.
+- 🌱 I’m currently learning computer science, how to write a rhetorical analysis essay in under an hour, and the least-painful way to remove mic tap.
 - 😄 Pronouns: they/them, please.
 - ⚡ Fun fact: I'm currently writing my sixth novel in an attempt to get published before I graduate high school. 
 
